@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @EnkaiNarok
 - 👀 I’m interested in HELP 
 - 🌱 I’m currently learning about FUD RATS
-- 💞️ I’m looking to collaborate on - sorry no skillset, I'm a FOD that loves learning.
+- 💞️ I’m looking to collaborate on - sorry no skillset, I'm a foreign object that loves learning.
 - 📫 How to reach me uhm...can you send me a message on here? I'm new dunno how it works :)
 
 <!---
